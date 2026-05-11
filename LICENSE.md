@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Bitwarden for macOS addon with Bitwarden for macOS custom Addon: identity-theft-protection & ransomware-shield. Featuring identity-theft-protection and
 
 
 
